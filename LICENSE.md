@@ -1,4 +1,4 @@
-# 
+# Nuevo meme coin sniper bot complementos para Mac OS | Premium meme coin sniper bot complementos para PC Windows. Con detección de rug pull y soporte multi-cadena — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
